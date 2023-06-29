@@ -4,7 +4,7 @@ Dit hier is nog niet optimaal gebruiksvriendelijk, maar dan staat het er alvast 
 
 Mochten de blogs nog niet hierboven staan, click dan op "view code".
 
-Je ziet dan wat van mijn SDG- en IDG-gerelateerde schrijfsels, waarvan sommigen reeds gepubliceerd op https://www.gelukcentraal.nl/?s=steltenpool
+Je ziet dan wat van mijn SDG- en IDG-gerelateerde schrijfsels, waarvan sommigen reeds (mooier) gepubliceerd op https://www.gelukcentraal.nl/?s=steltenpool
 
 Zodat de tekst niet deels buiten beeld valt: druk na het selecteren van een blog op de Raw knop
 
