@@ -1,12 +1,10 @@
-# blogs
+#ruudsteltenpool.blogspot.com
 
-Dit hier is nog niet optimaal gebruiksvriendelijk, maar dan staat het er alvast maar:
+#3: Verander je ...
 
-Mochten de blogs nog niet hierboven staan, click dan op "view code".
+#4: Zacht op je omgeving ...
 
-Je ziet dan wat van mijn SDG- en IDG-gerelateerde schrijfsels, waarvan sommigen reeds (mooier) gepubliceerd op https://www.gelukcentraal.nl/?s=steltenpool
-
-Zodat de tekst niet deels buiten beeld valt: druk na het selecteren van een blog op de Raw knop
+#5 en #6: Tennisles
 
 Aanleiding: Na menig reactie van mijn hand op https://janwillemdegraaf.blogspot.com, ook mondeling, heeft Jan Willem me een aantal keer aangemoedigd zelf wat te gaan schrijven.
 
