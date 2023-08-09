@@ -6,7 +6,7 @@
 
 #5 en #6: Tennisles
 
-Aanleiding: Na menig reactie van mijn hand op https://janwillemdegraaf.blogspot.com, ook mondeling, heeft Jan Willem me een aantal keer aangemoedigd zelf wat te gaan schrijven.
+Aanleiding: Na menig reactie van mijn hand op https://janwillemdegraaf.blogspot.com, ook mondeling, heeft Jan Willem me een aantal keer aangemoedigd zelf wat te gaan schrijven, bij deze.
 
 SDG = Sustainable Development Goals (bron: Verenigde Naties)
 
